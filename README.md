@@ -2,7 +2,7 @@
 
 Fikfap is a revolutionary short-form video sharing app designed for creators and users who want to explore engaging, creative, and trending content. With Fikfap APK available for Android and iOS, users can seamlessly download Fikfap to share videos, connect with others, and enjoy a unique social platform experience.
 
-## ⏬🌐🌐📌⬇ [DOWNLOAD FikFap APK](https://www.fikfapapps.com/) ⬇📌🌐🌐⏬
+## ⏬🌐🌐📌⬇ [DOWNLOAD FikFap APK](https://fikfap.download/) ⬇📌🌐🌐⏬
 
 ![Screenshot 2024-12-11 110546](https://github.com/user-attachments/assets/c07ed15a-eba5-4e15-9ac0-10d3bae67f7c)
 
